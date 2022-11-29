@@ -1,3 +1,3 @@
 ### Hello world 👋
 
-![reginald](https://user-images.githubusercontent.com/92199944/204468273-9c142ab8-0ae3-45a5-8840-43ba74b56a93.gif)
+![4SdB78W](https://user-images.githubusercontent.com/92199944/204469112-21046f29-a877-426a-9317-ee53fe1fdac7.gif)
